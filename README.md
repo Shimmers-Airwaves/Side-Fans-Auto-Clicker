@@ -1,2 +1,1 @@
-# Side-Fans-Auto-Clicker
-Side-Fans-Auto-Clicker
+# Gemz-Auto-Clicker-Powerful
